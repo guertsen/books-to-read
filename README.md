@@ -13,3 +13,5 @@
 <br>
 [Shakespeare’s Book: The Intertwined Lives Behind the First Folio](https://www.amazon.fr/gp/product/0008238383/)
 <br>
+[Memoirs: A Twentieth Century Journey In Science And Politics](https://www.amazon.fr/gp/product/0738207780/)
+<br>
