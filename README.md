@@ -9,3 +9,7 @@
 <br>
 [Les Apprentis sorciers. Fritz Haber, Wernher von Braun, Edward Teller](https://www.amazon.fr/gp/product/2020215152/)
 <br>
+[Greek Lessons](https://www.amazon.fr/gp/product/0241600278/)
+<br>
+[Shakespeare’s Book: The Intertwined Lives Behind the First Folio](https://www.amazon.fr/gp/product/0008238383/)
+<br>
