@@ -17,3 +17,4 @@
 <br>
 [The Medical Revolution of Messenger RNA](https://www.amazon.fr/gp/product/1621824942/)
 <br>
+[A Mind at Play: The Brilliant Life of Claude Shannon, Inventor of the Information Age](https://www.amazon.fr/gp/product/144568277X/)
