@@ -28,3 +28,11 @@
 [Hello, Stranger: Stories of Connection in a Divided World](https://www.amazon.fr/gp/product/1783785667/)
 <br>
 [Boltzmanns Atom: The Great Debate That Launched A Revolution In Physics](https://www.amazon.fr/gp/product/1501142445/)
+<br>
+[Dialogues sous le ciel étoilé](https://www.amazon.fr/gp/product/2221157303/)
+<br>
+[Grit: (Vermilion Life Essentials)](https://www.amazon.fr/gp/product/1785042661/)
+<br>
+[Outlive: The Science and Art of Longevity](https://www.amazon.fr/gp/product/1785044540/)
+<br>
+[Qed: The Strange Theory of Light and Matter](https://www.amazon.fr/gp/product/0691164096/)
