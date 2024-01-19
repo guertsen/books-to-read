@@ -18,3 +18,9 @@
 [The Medical Revolution of Messenger RNA](https://www.amazon.fr/gp/product/1621824942/)
 <br>
 [A Mind at Play: The Brilliant Life of Claude Shannon, Inventor of the Information Age](https://www.amazon.fr/gp/product/144568277X/)
+<br>
+[Cosmos: Nouveaux mondes - La suite du classique de Carl Sagan](https://www.amazon.fr/gp/product/2017040967/)
+<br>
+[Fractured](https://www.amazon.fr/gp/product/0008463999/)
+<br>
+[The Power of Strangers: The Benefits of Connecting in a Suspicious World](https://www.amazon.fr/gp/product/0241986427/)
