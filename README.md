@@ -24,3 +24,5 @@
 [Fractured](https://www.amazon.fr/gp/product/0008463999/)
 <br>
 [The Power of Strangers: The Benefits of Connecting in a Suspicious World](https://www.amazon.fr/gp/product/0241986427/)
+<br>
+[Hello, Stranger: Stories of Connection in a Divided World](https://www.amazon.fr/gp/product/1783785667/)
