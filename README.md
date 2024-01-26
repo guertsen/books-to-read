@@ -36,3 +36,10 @@
 [Outlive: The Science and Art of Longevity](https://www.amazon.fr/gp/product/1785044540/)
 <br>
 [Qed: The Strange Theory of Light and Matter](https://www.amazon.fr/gp/product/0691164096/)
+<br>
+[Quantum: A Guide For The Perplexed](https://www.amazon.fr/gp/product/1780223951/)
+<br>
+[The Very First Light: The True Inside Story Of The Scientific Journey Back To The Dawn Of The Universe](https://www.amazon.fr/gp/product/0465015751/)
+<br>
+[Prime Obsession: Berhhard Riemann and the Greatest Unsolved Problem in Mathematics](https://www.amazon.fr/gp/product/0452285259/)
+<br>
