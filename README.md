@@ -43,3 +43,11 @@
 <br>
 [Prime Obsession: Berhhard Riemann and the Greatest Unsolved Problem in Mathematics](https://www.amazon.fr/gp/product/0452285259/)
 <br>
+[Elementary Particles and the Laws of Physics](https://www.amazon.fr/gp/product/0521658624/)
+<br>
+[John Maynard Keynes: Hopes Betrayed, 1883-1920](https://www.amazon.fr/gp/product/033357379X/)
+<br>
+[John Maynard Keynes: 1883-1946: Economist, Philosopher, Statesman](https://www.amazon.fr/gp/product/0143036157/)
+<br>
+[John Maynard Keynes: Fighting for Britain 1937 - 1946](https://www.amazon.fr/gp/product/0333604563/)
+<br>
